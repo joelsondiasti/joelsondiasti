@@ -6,7 +6,7 @@ Atividade profissional atual: <br/><br/>
 ⚡Professor & Coordenador Pedagógico de Curso Técnico <br/> 
 ⚡Gestor em Tecnologia da Informação <br/>
 
-👨‍💻 Tenho 27 anos, sou formado em Gestão de TI pela Estácio de Sá, programador e um constante estudante de tecnologia. 
+👨‍💻 Tenho 28 anos, sou formado em Gestão de TI pela Estácio de Sá, programador e um constante estudante de tecnologia. 
 
 Já trabalhei como Assistente de Suporte e atuei em times de desenvolvimento como Analista de Requisitos.
 
